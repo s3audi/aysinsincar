@@ -1,0 +1,2 @@
+# aysinsincar
+Avukat Ayşin Sincar
